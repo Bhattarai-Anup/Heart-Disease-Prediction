@@ -96,6 +96,6 @@ We welcome contributions from the community to enhance the functionality and acc
 
 📧 **Contact Support**:
 
-For inquiries, assistance, or feedback, reach out to us at contact.info.inquiries@gmail.com. We value your input and strive to provide prompt support.
+For inquiries, assistance, or feedback, reach out to us at er.anup.bhattarai@gmail.com. We value your input and strive to provide prompt support.
 
 👩‍⚕️ **Happy Predicting!** 👨‍⚕️
